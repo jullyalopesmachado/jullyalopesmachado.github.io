@@ -1,3 +1,1 @@
 # jullyalopesmachado.github.io
-
-# sup
